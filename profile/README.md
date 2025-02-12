@@ -13,7 +13,7 @@ Do you manage **drivers, warehouse ops**, **hospitality** or other staff whose *
 
 > **We have worked extensively in Web3 in decentralised and internet-native organisations, which are hyper inclusive, equitable, and participatory. We are responsible for bringing the tools engagement and power of incentives to your organisation, helping you jump five years ahead.*
 >
-![TOAPBETA.png](https://github.com/TOAPXYZ/justus/blob/main/TOAPBETA%20(2).png)
+![TOAPBETA.png](https://github.com/TOAPXYZ/.github/blob/main/TOAPBETA.png)
 
 **Why Join Us?** 
 
